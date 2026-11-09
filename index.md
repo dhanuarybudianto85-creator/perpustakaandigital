@@ -12,5 +12,6 @@ Berikut ini adalah Koleksi yang dimiliki:
 8. [91-101+-+Charissa+Rahmadani](https://www.google.com/search?q=ebook/91-101%2B-%2BCharissa%2BRahmadani.pdf) – Charissa Rahmadani, dkk (2026)
 9. [1-s2.0-S0099133324000818-main](https://www.google.com/search?q=ebook/1-s2.0-S0099133324000818-main.pdf) – Maria Pinto, dkk (2024)
 10. [26210-Article Text-135962-1-10-20260410](ebook/26210-Article Text-135962-1-10-20260410.pdf) – Saenal Abidin, dkk (2026)
+11. [Rangkuman_Smart_Libraries_Dhanu_Ary_Budianto](ebook/Rangkuman_Smart_Libraries_Dhanu_Ary_Budianto.pdf) – Dhanu Ary Budianto (2026)
 ---
 *Powered by GitHub Pages*
